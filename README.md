@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ur1i
-- 👀 I’m interested in listening to podcasts, artificial intelligence and cryptocurrency.
+- 👀 I’m interested in listening to podcasts and artificial intelligence.
 - 🌱 I’m currently learning more about cyrptography
 - 💞️ I’m looking to collaborate on anything! :)
 - 📫 How to reach me: my email is uri111iza@gmail.com
